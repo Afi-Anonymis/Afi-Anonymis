@@ -1,11 +1,8 @@
-![93071832_168_edd3](https://github.com/Afi-Anonymis/Afi-Anonymis/assets/148569080/7ae8be98-29c6-4a24-9757-456489eacc13)
-- 👋 Hi, I’m @Afi-Anonymis
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Afi-Anonymis/Afi-Anonymis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![93071832_168_edd3](https://s6.uupload.ir/files/filtering-rubika.this.user_arta_cr.rubika.com_h50q.jpg)
+کیرم تو کس مادر رهبر مادر رهبر و فتا گاییدم کس خونی رهبر گاییده شده ضد انقلاب هستم ایدیم در روبیکا
+@sdjdkdkdmکیرم تو کس مادر رهبر مادر رهبر و فتا گاییدم کس خونی رهبر گاییده شده ضد انقلاب هستم ایدیم در روبیکا
+@sdjdkdkdmکیرم تو کس مادر رهبر مادر رهبر و فتا گاییدم کس خونی رهبر گاییده شده ضد انقلاب هستم ایدیم در روبیکا
+@sdjdkdkdmکیرم تو کس مادر رهبر مادر رهبر و فتا گاییدم کس خونی رهبر گاییده شده ضد انقلاب هستم ایدیم در روبیکا
+@sdjdkdkdmکیرم تو کس مادر رهبر مادر رهبر و فتا گاییدم کس خونی رهبر گاییده شده ضد انقلاب هستم ایدیم در روبیکا
+@sdjdkdkdmکیرم تو کس مادر رهبر مادر رهبر و فتا گاییدم کس خونی رهبر گاییده شده ضد انقلاب هستم ایدیم در روبیکا
+@sdjdkdkdmhttps://s6.uupload.ir/files/filtering-rubika.this.user_arta_cr.rubika.com_h50q.jpghttps://s6.uupload.ir/files/filtering-rubika.this.user_arta_cr.rubika.com_h50q.jpghttps://s6.uupload.ir/files/filtering-rubika.this.user_arta_cr.rubika.com_h50q.jpghttps://s6.uupload.ir/files/filtering-rubika.this.user_arta_cr.rubika.com_h50q.jpg
